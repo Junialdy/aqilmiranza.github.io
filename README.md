@@ -1,1 +1,0 @@
-# aqilmiranza.github.io
